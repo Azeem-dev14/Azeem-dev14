@@ -1,4 +1,4 @@
-![original-4d02a26d053c9acd38a38e45d50ec572](https://github.com/user-attachments/assets/9af1cfd9-9372-4c30-8e69-7ba84a6c231a)
+![original-4d02a26d053c9acd38a38e45d50ec572-2](https://github.com/user-attachments/assets/2867a778-665f-42d7-aadd-a614ebdae98f)
 
 ## Hi there 👋 I'm Azeem
 
